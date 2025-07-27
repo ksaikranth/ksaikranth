@@ -36,6 +36,8 @@
 📧 Email: saikranth.datasolutions@gmail.com  
 🔗 LinkedIn: [linkedin.com/in/saikranth](https://www.linkedin.com/in/saikranth)  
 📂 Portfolio: [Coming Soon — GitHub Projects section]
+![Profile Banner](A_digital_graphic_displays_four_bold_white_logos_a.png)
+
 
 ---
 
